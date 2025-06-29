@@ -1,7 +1,7 @@
 # Privacy_Policy-Artisians
 **Privacy Policy**
 
-Jaikrishna Binnar built apps as Free apps. This SERVICE is provided by Jaikrishna Binnar at no cost and is intended for use as is.
+Jaikrishna Binnar built app Artisians as a Free app. This SERVICE is provided by Jaikrishna Binnar at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
